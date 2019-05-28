@@ -70,7 +70,8 @@
 
 ## 招商银行
 
-[简历页面](http://career.cmbchina.com/Position.aspx?id=12587)
+[简历页面](http://career.cmbchina.com/Position.aspx?id=12587)  
+
 职位: __境内投资研究岗（二级市场及股票市场策略研究方向）__  
 
 岗位职责:
