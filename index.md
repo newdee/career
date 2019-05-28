@@ -1,6 +1,103 @@
 # Some Job hunting in Secondary market research
 
-## [大成基金](http://www.dcfund.com.cn/dcjj/index.jhtml)
+## 2019-05-28
+### [卓越集团](https://www.liepin.com/company/873187/?subJobKind=0)
+职位: __二级市场（生物医药）-研究员__   
+标签: 统招本科 2年以上 语言不限 年龄不限  
+薪资: __面议__
+> 2018中国房地产500强  绩效奖金  带薪年假  通讯津贴  午餐补助  定期体检  扁平管理  五险一金  领导好  发展空间大   
+
+
+行业：房地产开发/建筑/建材/工程   
+公司规模：1000-2000人  
+公司地址：深圳市福田中心区福华三路卓越世纪中心1号楼18层  
+
+职责描述：
+1、负责收集、分析股票的相关研究报告及公告，包括对中国、香港、日本和美国上市生物医药健康类公司业务进行持续性研究等。
+2、收集、跟踪市场信息及持仓（关注）个股动态并做出相应简报。
+3、实时盯盘，研判行情走势，实时关注操作标的价格变动和相关资讯。
+
+任职要求：
+1、国内外重点院校本科及以上学历，金融、经济或医药、生物等专业学历背景；
+2、2年以上公募基金研究员或者知名投行、私募机构、券商资管部门等二级市场投资经验；
+3、具有丰富的证券基础理论知识，善于进行行业研究和挖掘；
+4、英语能作为工作语言；
+5、较强的思维逻辑、数据收集和分析能力；
+6、具有A股、港股或者美股二级市场研究经验者优先考虑。
+
+[投递地址](https://www.liepin.com/job/1919171969.shtml?imscid=R000000075&ckid=eb835ed080fec74c&headckid=6b06a2fefd3afb99&pageNo=0&pageIdx6&totalIdx=6&sup=1&siTag=2QN6VLQJyCr6Kqm6u7eihQ~-nQsjvAMdjst7vnBI-6VZQ&d_sfrom=search_fp&d_ckId=4e828d6853084f6a471718472d85583d&d_curPage=0&d_pageSize=40&d_headId=94ae2f3641930f30ebf2e2dd7e89453a&d_posi=6)
+
+### [房多多](https://www.lagou.com/gongsi/622.html)
+
+职位: __市场研究员__  
+标签: __15k-25k /深圳 / 经验1-3年 / 硕士及以上 / 全职__  
+
+五险一金、年终奖、补充商业保险  
+
+职责描述：
+1. 根据公司业务需求，开展战略业务研究，为新项目落地提供理论及案例支持；
+2. 研究国内外房产、互联网、金融相关的商业案例，撰写商业分析报告；
+3. 开展房产交易相关的理论性研究，结合实际业务，撰写研究报告；
+4. 跟踪公司战略工作进展，进行阶段性战略复盘并制定新阶段战略目标。
+
+
+
+任职要求：
+1. 硕士学历，统计学、数学、金融、房地产专业背景优先；
+2. 良好的数据分析功底和统计分析能力；  
+3. 良好的文字表达能力和语言沟通能力；  
+4. 能够阅读上市公司中英文年报及招股说明书；  
+5. 致力于研究新商业模式，挖掘业务增长点；  
+6. 有战略研究或咨询工作背景者优先。  
+
+
+地址: 深圳 - 南山区 - 科苑路科兴科学园B2单元18楼  
+
+[投递简历](https://www.lagou.com/jobs/5930238.html)
+
+
+### [~~~蓝色速度~~~](https://www.lagou.com/gongsi/482635.html)
+职位: 市场研究分析  
+
+标签: __13k-15k__ /深圳 / 经验3-5年 / 本科及以上 / 全职  
+
+职位诱惑： 红杉资本投,B2C,餐饮界京东  
+岗位职责：
+
+1. 负责战略研究，行业分析，经营分析等；
+
+2. 基于对业务的深入理解，搭建行业分析、竞争分析体系，推进整体行业认知的迭代，识别外部机会和威胁，辅助重大业务决策；
+
+3. 负责用户需求研究与分析，提出能落地的解决方案及跟进措施；
+
+4. 独立开展用户研究项目全流程工作，把控需求的合理性，制定合适的研究方案，把控项目的节奏和研究质量，合理分析，结合业务现状输出可落地的研究报告；
+
+5. 参与外卖业务战略规划的调研、分析、制定和输出；
+
+6. 完成上级交办的其他工作。
+
+任职要求：
+
+1. 具备良好的行业分析理论和实践，可以通过行业分析，发现业务趋势，优化业务策略；
+
+2. 具备战略规划类项目的设计、输出、推动经验；
+
+3. 具备优秀的团队协作能力和资源协同能力；
+
+4. 具备新零售、餐饮、O2O相关业务背景优先；
+
+5. 3年以上战略规划、商业分析、咨询公司背景优先；
+
+6. 自驱力强；能适应高节奏强压力的工作；
+
+7. 计算机及办公软件应用熟练，如Excel、Powerpoint。
+
+工作地址: 深圳 - 福田区 - 车公庙 - 车公庙泰然工贸园212栋602  
+
+[投递简历](https://www.lagou.com/jobs/5961180.html)
+
+## 2019-05-27
+### [大成基金](http://www.dcfund.com.cn/dcjj/index.jhtml)
 
 地址: 深圳-车公庙  
 标签: 硕士及以上 2年以上 普通话 年龄不限   
@@ -20,7 +117,7 @@
 
 [投递地址](https://www.liepin.com/job/197358696.shtml?imscid=R000000075&ckid=7762f37e27370283&headckid=576523343ef17f1d&pageNo=0&pageIdx3&totalIdx=3&sup=1&siTag=Q8xtao04tsrePEF5YTKQUw~-nQsjvAMdjst7vnBI-6VZQ&d_sfrom=search_fp&d_ckId=961a336137b26f19de55d676cb7c375e&d_curPage=0&d_pageSize=40&d_headId=1b4e034933a33907f673f07b0cb2fac0&d_posi=3)
 
-## [大成基金](http://www.dcfund.com.cn/dcjj/index.jhtml)
+### [大成基金](http://www.dcfund.com.cn/dcjj/index.jhtml)
 职位: __TMT行业研究员__  
 薪资: 面议  
 
@@ -45,7 +142,7 @@
 
 
 
-## [广州由榕股权投资管理有限公司](https://www.qichacha.com/firm_292e85d00822888c56877e90a5f08e36.html)
+### [广州由榕股权投资管理有限公司](https://www.qichacha.com/firm_292e85d00822888c56877e90a5f08e36.html)
 企业介绍: 由著名投资人及知名机构共同成立的私募基金。主要业务：二级市场投资、一二级联动业务等。  
 行业：基金/证券/期货/投资   
 公司规模：50-99人  
@@ -68,7 +165,7 @@
 [投递地址](https://www.liepin.com/job/1919453203.shtml?imscid=R000000075&ckid=7762f37e27370283&headckid=576523343ef17f1d&pageNo=0&pageIdx18&totalIdx=18&sup=1&siTag=Q8xtao04tsrePEF5YTKQUw~-nQsjvAMdjst7vnBI-6VZQ&d_sfrom=search_fp&d_ckId=961a336137b26f19de55d676cb7c375e&d_curPage=0&d_pageSize=40&d_headId=1b4e034933a33907f673f07b0cb2fac0&d_posi=18)
 
 
-## 招商银行
+### 招商银行
 
 [简历页面](http://career.cmbchina.com/Position.aspx?id=12587)  
 
@@ -96,7 +193,7 @@
 
 
 
-## [深圳达昌基金管理有限公司](https://www.qichacha.com/firm_bcbb7f8cec99e7accd185fd22780b9e6.html)
+### [深圳达昌基金管理有限公司](https://www.qichacha.com/firm_bcbb7f8cec99e7accd185fd22780b9e6.html)
 岗位: [__分析师__](https://www.liepin.com/job/1916518629.shtml?sfrom=recom-recom_jd-b543831e96b7a061a2d7183330738bd7-3&d_sfrom=recom_jd&d_ckId=b543831e96b7a061a2d7183330738bd7&d_curPage=0&d_pageSize=100&d_headId=b543831e96b7a061a2d7183330738bd7&d_posi=2)
 
 
@@ -122,7 +219,7 @@
 7. 有班长、团支书等学生干部经历优先。
 
 
-## [深圳市同威投资管理有限公司](http://www.chinacopower.com/)
+### [深圳市同威投资管理有限公司](http://www.chinacopower.com/)
 
 职位： [__二级市场研究员__](https://jobs.zhaopin.com/CC273749818J00253779903.htm)
 
@@ -159,7 +256,7 @@
 __公司好像还行，但是工资略低，但是有双休,另外不知道两年以上经验是否硬性要求。__
 
 
-## 深圳市健易投资管理有限公司
+### 深圳市健易投资管理有限公司
 
 职位： [__TMT行业研究员__](https://www.highpin.cn/job/b747867.html?keyWord=%E4%BA%8C%E7%BA%A7%E5%B8%82%E5%9C%BA)  
 职位类别： 金融/证券/期货/投资-证券分析/金融研究  
