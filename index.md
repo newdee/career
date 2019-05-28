@@ -5,7 +5,7 @@
 地址: 深圳-车公庙  
 标签: 硕士及以上 2年以上 普通话 年龄不限   
 
-职位: 行业研究员  
+职位: __行业研究员__  
 
 待遇: 面议  
 
@@ -21,7 +21,7 @@
 [投递地址](https://www.liepin.com/job/197358696.shtml?imscid=R000000075&ckid=7762f37e27370283&headckid=576523343ef17f1d&pageNo=0&pageIdx3&totalIdx=3&sup=1&siTag=Q8xtao04tsrePEF5YTKQUw~-nQsjvAMdjst7vnBI-6VZQ&d_sfrom=search_fp&d_ckId=961a336137b26f19de55d676cb7c375e&d_curPage=0&d_pageSize=40&d_headId=1b4e034933a33907f673f07b0cb2fac0&d_posi=3)
 
 ## [大成基金](http://www.dcfund.com.cn/dcjj/index.jhtml)
-职位: TMT行业研究员
+职位: __TMT行业研究员__  
 薪资: 面议  
 
 职责描述：
@@ -51,7 +51,7 @@
 公司规模：50-99人  
 公司地址：琶洲大道东1号保利国际广场  
 
-职位: 研究员（二级市场）
+职位: __研究员（二级市场）__  
 待遇: 23-45万 
 
 硕士及以上 经验不限 语言不限 年龄不限   
@@ -71,6 +71,8 @@
 ## 招商银行
 
 [简历页面](http://career.cmbchina.com/Position.aspx?id=12587)
+职位: __境内投资研究岗（二级市场及股票市场策略研究方向）__  
+
 岗位职责:
 1. 负责对境内股票市场领域进行研究分析、提供策略并定期撰写报告；
 2. 负责对境内股票领域进行专项深度研究分析，并结合市场变化从中发掘投资机会与风险；
@@ -94,7 +96,7 @@
 
 
 ## [深圳达昌基金管理有限公司](https://www.qichacha.com/firm_bcbb7f8cec99e7accd185fd22780b9e6.html)
-岗位: [分析师](https://www.liepin.com/job/1916518629.shtml?sfrom=recom-recom_jd-b543831e96b7a061a2d7183330738bd7-3&d_sfrom=recom_jd&d_ckId=b543831e96b7a061a2d7183330738bd7&d_curPage=0&d_pageSize=100&d_headId=b543831e96b7a061a2d7183330738bd7&d_posi=2)
+岗位: [__分析师__](https://www.liepin.com/job/1916518629.shtml?sfrom=recom-recom_jd-b543831e96b7a061a2d7183330738bd7-3&d_sfrom=recom_jd&d_ckId=b543831e96b7a061a2d7183330738bd7&d_curPage=0&d_pageSize=100&d_headId=b543831e96b7a061a2d7183330738bd7&d_posi=2)
 
 
 薪资: 12-30万  
@@ -121,7 +123,7 @@
 
 ## [深圳市同威投资管理有限公司](http://www.chinacopower.com/)
 
-职位： [二级市场研究员](https://jobs.zhaopin.com/CC273749818J00253779903.htm)
+职位： [__二级市场研究员__](https://jobs.zhaopin.com/CC273749818J00253779903.htm)
 
 工资:10-15k  
 职位类别： 金融/证券/期货/投资-证券分析/金融研究  
@@ -158,7 +160,7 @@ __公司好像还行，但是工资略低，但是有双休,另外不知道两�
 
 ## 深圳市健易投资管理有限公司
 
-职位： [TMT行业研究员](https://www.highpin.cn/job/b747867.html?keyWord=%E4%BA%8C%E7%BA%A7%E5%B8%82%E5%9C%BA)  
+职位： [__TMT行业研究员__](https://www.highpin.cn/job/b747867.html?keyWord=%E4%BA%8C%E7%BA%A7%E5%B8%82%E5%9C%BA)  
 职位类别： 金融/证券/期货/投资-证券分析/金融研究  
 发布时间：2019-05-27  
 招聘人数：2  
