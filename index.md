@@ -1,4 +1,4 @@
-# Some Job hunting in Secondary market research
+# Job hunting in Secondary market research
 
 ## 2019-05-30
 
