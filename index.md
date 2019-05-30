@@ -2,6 +2,14 @@
 
 ## 2019-05-30
 
+### [深创投](http://www.szvc.com.cn/main/joinUs/zpsy/index.shtml)
+职位: 行业研究员(TMT)  
+基本要求： 卖方或买方1年以上TMT行业二级市场研究经验    
+联系人:王经理   
+Email: hr@szvc.com.cn  
+电话：0755-82912741  
+
+
 ### [大岩资本](https://www.liepin.com/company/8003964/?subJobKind=0)
 职位: __港股分析师/研究员__   
 薪资: 18-24w  
