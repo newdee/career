@@ -1,5 +1,20 @@
 # Job hunting in Secondary market research
 
+## 2019-06-03
+### [深圳市诺铂远信投资管理有限公司](https://www.liepin.com/company/9865977/?subJobKind=1)
+职位: 证券二级市场研究员  
+薪资: 6-10w
+本科及以上 经验不限 语言不限 年龄不限   
+管理规范 技能培训 全勤奖 领导好 发展空间大  
+职责描述：
+
+股票二级市场研究员（助理） 日常盯盘，撰写上市公司 行业研究报告等
+
+
+任职要求：金融类专业本科毕业，具有基金从业资格证，有CFA CPA等证书的待遇可以令外详谈。  
+
+
+
 ## 2019-05-31
 
 ### [房多多](https://www.liepin.com/company/7871137/?subJobKind=0)
