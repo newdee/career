@@ -4,6 +4,8 @@
 
 _ __端午快乐!__ _ 
 
+![](https://raw.githubusercontent.com/newdee/BlogImage/master/1.jpg)
+
 ### [红土创新基金](https://www.liepin.com/company/8380424/?subJobKind=0)
 职位: 行业研究员   
 薪资: 面议   
