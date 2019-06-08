@@ -38,6 +38,7 @@
 
 [简历投递](https://jobs.zhaopin.com/CC299883684J00349887801.htm)
 
+![](https://raw.githubusercontent.com/newdee/BlogImage/master/2.jpg)
 ## 2019-06-07
 
  __端午快乐!__   
