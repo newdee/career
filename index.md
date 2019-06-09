@@ -1,5 +1,17 @@
 # Job hunting in Secondary market research
 
+
+## TO BE CONTINUED... 
+## 2019-06-09
+
+### [采纳品牌](https://www.lagou.com/gongsi/331185.html)
+职位: 高级市场研究员  
+薪资: 10-15k  
+嗯...经验要求3-5年,,,感觉不用投了...
+
+
+今天貌似没看到比较合适的职位,明天续更哈~
+
 ## 2019-06-08
 ### [大连华讯投资股份有限公司深圳分公司](http://company.zhaopin.com/CZ299883680.htm)
 职位: 金融研究员  
