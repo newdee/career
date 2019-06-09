@@ -11,6 +11,9 @@
 
 
 今天貌似没看到比较合适的职位,明天续更哈~
+放张图改善一下心情：  
+![](https://raw.githubusercontent.com/newdee/BlogImage/master/20190609094800.jpg)
+
 
 ## 2019-06-08
 ### [大连华讯投资股份有限公司深圳分公司](http://company.zhaopin.com/CZ299883680.htm)
