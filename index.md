@@ -3,6 +3,9 @@
 
 ## TO BE CONTINUED... 
 
+## 2019-06-13  
+
+Emmm, 今天没发现比较合适的新职位,再接再厉!
 ## 2019-06-12  
 
 ### [智邻科技](https://www.lagou.com/gongsi/290997.html)
